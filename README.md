@@ -15,6 +15,6 @@
 ㅤ
 
 
-<img src="https://github.com/user-attachments/assets/d7f8e56b-cf8a-41c1-8708-eb717f88b81b" width="465" alt="Logo">
+<img src="https://github.com/user-attachments/assets/d7f8e56b-cf8a-41c1-8708-eb717f88b81b" width="475" alt="Logo">
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img src="https://github.com/user-attachments/assets/4da3b10e-8645-4b2c-84ac-db5f609be7b0" width="150" alt="Logo">
