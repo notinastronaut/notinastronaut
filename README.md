@@ -4,7 +4,7 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[𝚙𝚛𝚗𝚜](https://pronouns.cc/@drfreakshow/%E2%9C%A9%20%20%20%F0%9D%98%8E%F0%9D%98%B3%F0%9D%98%A2%F0%9D%98%A4%F0%9D%98%A6) ㅤㅤㅤㅤ  [𝚊𝚝𝚊](https://notinastronaut.atabook.org/?page=1)
 ㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img src="https://github.com/user-attachments/assets/3a0c92d7-cfb5-42b0-ac9f-b967ee000278" width="400" alt="Logo"> 
-ㅤㅤ𝘳𝘺𝘭𝘢𝘯𝘥 𝘨𝘳𝘢𝘤𝘦 𝘧𝘪𝘤𝘵𝘪𝘰𝘯𝘬𝘪𝘯 ㅤ꒰ঌ ໒꒱ㅤ 𝙣𝙤 𝙨𝙝𝙞𝙥𝙨 , 𝙥𝙡𝙚𝙖𝙨𝙚
+ㅤㅤㅤㅤㅤㅤ𝘳𝘺𝘭𝘢𝘯𝘥 𝘨𝘳𝘢𝘤𝘦 𝘧𝘪𝘤𝘵𝘪𝘰𝘯𝘬𝘪𝘯 ㅤ꒰ঌ ໒꒱ㅤ 𝙣𝙤 𝙨𝙝𝙞𝙥𝙨 , 𝙥𝙡𝙚𝙖𝙨𝙚
 
 
 
