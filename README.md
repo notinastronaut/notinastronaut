@@ -1,33 +1,20 @@
-
-⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀  ⠀ ⠀ <img width="150" height="80" alt="IMG_0560" src="https://github.com/user-attachments/assets/0a37f425-314d-4569-a747-cc1f906b09d8" /> <img width="150" height="80" alt="IMG_0561" src="https://github.com/user-attachments/assets/afff03ee-204d-4c28-99f5-30da8ab096c8" /> <img width="150" height="80" alt="IMG_0548" src="https://github.com/user-attachments/assets/fd5b846d-4094-4c43-8464-dbe91c9bfcc5" /> <img width="150" height="80" alt="IMG_0556" src="https://github.com/user-attachments/assets/f3c827ff-ef68-4c84-baee-34e98eff85c1" />
-
+ㅤ<img src="https://github.com/user-attachments/assets/87f230bd-70d1-4590-b2e0-ed2d7ea55b3a" align="left" width="300" alt="Logo"> ㅤ
 
 
- 
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤ[𝚙𝚛𝚗𝚜](https://pronouns.cc/@drfreakshow/%E2%9C%A9%20%20%20%F0%9D%98%8E%F0%9D%98%B3%F0%9D%98%A2%F0%9D%98%A4%F0%9D%98%A6) ㅤㅤㅤㅤ  [𝚊𝚝𝚊](https://notinastronaut.atabook.org/?page=1)
+ㅤㅤㅤㅤ
+
+ㅤ<img src="https://github.com/user-attachments/assets/3a0c92d7-cfb5-42b0-ac9f-b967ee000278" width="400" alt="Logo"> 
+
+ㅤ𝘳𝘺𝘭𝘢𝘯𝘥 𝘨𝘳𝘢𝘤𝘦 𝘧𝘪𝘤𝘵𝘪𝘰𝘯𝘬𝘪𝘯 ㅤ꒰ঌ ໒꒱ㅤ 𝙣𝙤 𝙨𝙝𝙞𝙥𝙨 , 𝙥𝙡𝙚𝙖𝙨𝙚
 
 
-⠀⠀⠀⠀⠀⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀⠀⠀⠀⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀⠀⠀ ⠀ ⠀⠀⠀ ⠀ ⠀⠀[ata](https://notinastronaut.atabook.org/?page=1)  ⠀⠀[prns](https://prns.cc/wqwxoz) ⠀ ⠀[straw](https://spacedoutfox.straw.page/)
 
-⠀⠀⠀ ⠀⠀⠀⠀ ⠀⠀  ⠀⠀⠀⠀ <img width="200" height="25" alt="IMG_0553" src="https://github.com/user-attachments/assets/8ba3ad27-a8e5-4a76-9920-0de06f12324f" /> <img width="200" height="25" alt="IMG_0562" src="https://github.com/user-attachments/assets/33c9514e-2030-4405-8351-66a870cf4a11" /> <img width="200" height="25" alt="IMG_0554" src="https://github.com/user-attachments/assets/f18192e5-5b61-4f13-bd27-5911c49633e4" /> 
 
-⠀⠀⠀⠀⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀⠀⠀⠀⠀ ⠀⠀ ⠀⠀Ryland Grace fictionkin⠀ ⠀ ⠀<img width="50" height="60" alt="IMG_0545" src="https://github.com/user-attachments/assets/a9d22b14-2df2-4d15-9e3e-a2777d23c80a" />
-⠀ ⠀ ⠀⠀⠀⠀I <3 my pony town party
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="130" height="69" alt="633194520-eab5a5ff-3d2c-49a0-9d4d-e94556e26622" src="https://github.com/user-attachments/assets/59714398-9987-4680-8e13-f42314f42149" /> ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="130" height="69" alt="633194688-a3d92075-1990-4e45-bff7-62f353d371dd" src="https://github.com/user-attachments/assets/ba7fb4e2-560f-47c5-a33d-cb9c94557557" />
+ㅤ
 
- ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀⠀⠀⠀⠀ ⠀ ⠀⠀ ⠀⠀⠀<img width="120" height="60" alt="IMG_0571" src="https://github.com/user-attachments/assets/eab5a5ff-3d2c-49a0-9d4d-e94556e26622" />⠀ ⠀  ⠀ ⠀ ⠀⠀ <img width="120" height="60" alt="IMG_0568" src="https://github.com/user-attachments/assets/29fcb916-de72-41c4-be15-135ef8973ce9" />⠀ ⠀  ⠀ ⠀ ⠀⠀<img width="120" height="60" alt="IMG_0569" src="https://github.com/user-attachments/assets/a3d92075-1990-4e45-bff7-62f353d371dd" />
 
-⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀⠀⠀⠀⠀ ⠀ ⠀⠀⠀ ⠀⠀⠀⠀⠀<img width="86" height="15" alt="IMG_0597" src="https://github.com/user-attachments/assets/6da5ca2d-ffcc-494c-9aec-84ce9c6d058d" /> ⠀ ⠀⠀ ⠀ ⠀⠀⠀<img width="86" height="15" alt="IMG_0596" src="https://github.com/user-attachments/assets/3ba9112a-e785-45fa-80e4-c03a79738bf4" /> ⠀ ⠀⠀ ⠀ ⠀⠀⠀⠀<img width="86" height="15" alt="IMG_0594" src="https://github.com/user-attachments/assets/3d390438-de1d-4b89-9a45-f6d0587b48c2" /> ⠀ ⠀⠀ ⠀ ⠀⠀⠀⠀⠀⠀ 
+<img src="https://github.com/user-attachments/assets/d7f8e56b-cf8a-41c1-8708-eb717f88b81b" width="465" alt="Logo">
 
-<!--
-**notinastronaut/notinastronaut** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img src="https://github.com/user-attachments/assets/4da3b10e-8645-4b2c-84ac-db5f609be7b0" width="150" alt="Logo">
